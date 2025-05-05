@@ -5,3 +5,4 @@ it's just note.
 
 :)
 
+okay, I need to buy macbook, 'cause this chromebook is annoying so much. 
